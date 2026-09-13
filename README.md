@@ -8,7 +8,7 @@ https://youtube.com
 https://supercell-store.beyercarter1.workers.dev
 https://play.geforcenow.com
 https://genizymath-github-io-two.vercel.app
-https://forms.gle/G5SK4C8sRqSq5hxg6
+https://
 https://
 https://
 https://
