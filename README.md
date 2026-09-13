@@ -9,6 +9,6 @@ https://supercell-store.beyercarter1.workers.dev
 https://play.geforcenow.com
 https://genizymath-github-io-two.vercel.app
 https://moony-dhx.pages.dev/MoonPieLauncher
-https://
-https://
+https://maddoxcloud.com
+https://app.3daimtrainer.com/
 https://
