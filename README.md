@@ -12,3 +12,4 @@ https://moony-dhx.pages.dev/MoonPieLauncher
 https://maddoxcloud.com
 https://app.3daimtrainer.com/
 https://toustream.xyz
+https://yukios.pages.dev
