@@ -15,4 +15,4 @@ https://toustream.xyz
 https://yukios.pages.dev
 https://vercel.com
 https://srb2web.gvbvdxx.me/
-
+https://truffled.lol/tools/firefox/index.html
