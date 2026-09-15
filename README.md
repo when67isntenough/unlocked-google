@@ -15,3 +15,4 @@ https://toustream.xyz
 https://yukios.pages.dev
 https://vercel.com
 https://raw.githack.com/wasmdotrip/AmongUsWeb/main/index.html
+https://github.com/MrSynax/AmongUsWeb
