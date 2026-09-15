@@ -14,5 +14,5 @@ https://app.3daimtrainer.com/
 https://toustream.xyz
 https://yukios.pages.dev
 https://vercel.com
-https://raw.githack.com/wasmdotrip/AmongUsWeb/main/index.html
+srb2web.gvbvdxx.me/
 
