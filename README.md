@@ -18,3 +18,4 @@ https://srb2web.gvbvdxx.me/
 https://truffled.lol/tools/firefox/index.html
 https://xcloud.inknetworks.site/
 https://kartweb.gvbvdxx.me/
+https://srb-2-web-relay.vercel.app
