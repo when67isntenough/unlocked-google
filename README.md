@@ -21,3 +21,4 @@ https://kartweb.gvbvdxx.me/
 https://srb-2-web-relay.vercel.app
 https://cdn.jsdelivr.net/gh/jexel-dev/ubg-lesson-03@main/lesson-planner-4-1.svg
 https://woahhcrackers.github.io/CupheadWeb/
+https://educational-continents-classroom.edgeone.dev
