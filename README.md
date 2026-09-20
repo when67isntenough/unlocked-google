@@ -19,6 +19,5 @@ https://truffled.lol/tools/firefox/index.html
 https://xcloud.inknetworks.site/
 https://kartweb.gvbvdxx.me/
 https://srb-2-web-relay.vercel.app
-https://cdn.jsdelivr.net/gh/jexel-dev/ubg-lesson-03@main/lesson-planner-4-1.svg
+https://tony-chae.itch.io/sonic-2-absolute
 https://woahhcrackers.github.io/CupheadWeb/
-https://educational-continents-classroom.edgeone.dev
