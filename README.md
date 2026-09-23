@@ -22,3 +22,4 @@ https://srb-2-web-relay.vercel.app
 https://woahhcrackers.github.io/CupheadWeb/
 https://anto0124314.github.io/rsdk-library-fork-forever
 https://cdn.jsdelivr.net/gh/rykcbaoolNEW/dogeub/index.svg?id=4&key=4
+https://cdn.jsdelivr.net/gh/when67isntenough/wasm.rip@main/stuff.svg
