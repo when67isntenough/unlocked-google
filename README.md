@@ -26,3 +26,4 @@ https://hc-stickylife-uploads.s3.us-east-2.amazonaws.com/2026/09/24/20260924-043
 https://cinevo.nl
 https://astra-education.top/
 https://achromaon.top/
+https://nostaligafun.pages.dev/
