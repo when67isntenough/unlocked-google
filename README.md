@@ -29,4 +29,4 @@ https://achromaon.top/
 https://nostaligafun.pages.dev/
 https://schswork.github.io/gn-light/
 https://schswork.github.io/math/
-chatgpt.com
+https://chatgpt.com
