@@ -1,5 +1,5 @@
 # https://google.com
-https://google.com
+https://ubz.lol
 https://easyfun.gg
 https://geometry.today
 https://legacyweb.gvbvdxx.me/
