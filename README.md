@@ -33,3 +33,4 @@ https://chatgpt.com
 https://5.playgta5online.com/
 https://mcraft.fun/
 https://wiiported.top
+https://xcloud-free.s3.us-east-2.amazonaws.com/index.html
