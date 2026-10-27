@@ -33,4 +33,4 @@ https://chatgpt.com
 https://5.playgta5online.com/
 https://mcraft.fun/
 https://wiiported.top
-https://opium.best/
+https://d2460bmcqrol01.cloudfront.net/
