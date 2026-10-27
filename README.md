@@ -33,4 +33,4 @@ https://chatgpt.com
 https://5.playgta5online.com/
 https://mcraft.fun/
 https://wiiported.top
-http://myart.aasee.se/
+https://opium.best/
